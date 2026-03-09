@@ -1,9 +1,9 @@
 
-Mireya Contreras G´omez
+Mireya Contreras Gomez
 2109281
 IMTC
 
-Raul Eduardo Luna Mil´an
+Raul Eduardo Luna Milan
 1875307
 IMTC
 
@@ -11,7 +11,7 @@ Melody Emiliana Treviño Torres
 2128063
 IMTC
 
-Patricio Guti´errez G´omez
+Patricio Gutierrez Gomez
 1949806
 IMTC
 
